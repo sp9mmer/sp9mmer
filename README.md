@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sp9mmer
+- 👀 I’m interested in video games 🎮
+- 🌱 I’m currently learning how to script 💻
